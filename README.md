@@ -1,0 +1,1 @@
+# HQ-Scan.-DOCS-PDF
